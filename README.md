@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @Mongoosesyf
+- Ungraduated student from THU
 - 👀 MongooseFallFlat
