@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Mongoosesyf
-- Graduated from THU, DA
+- THU, DA -> ZJU
 - 👀 MongooseFallFlat
