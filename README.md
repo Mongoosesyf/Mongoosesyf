@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Mongoosesyf
-- Ungraduated student from THU
+- Graduated from THU, DA
 - 👀 MongooseFallFlat
