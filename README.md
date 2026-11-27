@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Mongoosesyf
-- THU, DA -> ZJU
-- 👀 MongooseFallFlat
+- THU DA -> ZJU -> Ali Qoder ^^
+- Only just to burn, that's the way it is
